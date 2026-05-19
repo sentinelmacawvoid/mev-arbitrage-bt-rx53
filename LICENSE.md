@@ -1,4 +1,4 @@
-# 
+# advanced bot de sniper MEV complementos es el mejor bot de sniper MEV complementos con escaneo de degen coins y back-running. Seguro, confiable y optimizado para estrategias MEV,
 
 
 
